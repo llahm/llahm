@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @llahm
+- 👋 Hi, I’m Lamesgnew( @llahm )
 - 👀 I’m interested in any CS-related topic
 - 🌱 I’m currently studying computer science
 - 💞️ I’m looking to collaborate on anything i could help with(based on my level of experience)
